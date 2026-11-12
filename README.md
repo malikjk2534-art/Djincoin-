@@ -1,0 +1,2 @@
+# Djincoin-
+The futures coin 
